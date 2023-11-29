@@ -16,7 +16,7 @@ https://www.tinkercad.com/things/hLdFtqGZrHu-parcial-sistemas-parte-2
 
 ## Tercera parte
 
-## :robot: Link a la segunda parte
+## :robot: Link a la tercera parte
 
 [
 https://www.tinkercad.com/things/hLdFtqGZrHu-parcial-sistemas-parte-2](https://www.tinkercad.com/things/2Wpf5nV4EUN-parcial-sistemas-parte-3?sharecode=t09-QgGfz-kAGE56V_yCzMCi-GaWVmbju0BbpSL9oJ4)https://www.tinkercad.com/things/2Wpf5nV4EUN-parcial-sistemas-parte-3?sharecode=t09-QgGfz-kAGE56V_yCzMCi-GaWVmbju0BbpSL9oJ4
